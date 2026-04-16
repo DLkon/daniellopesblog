@@ -1,1 +1,0 @@
-como ler um livro
